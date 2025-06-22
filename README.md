@@ -11,7 +11,7 @@
 
 ---
 
-### 🌐 Let’s Build & Learn Together!
+### 🌐 Let’s Build & Learn Together ! DO follow on these platforms 
 
 - 🎥 [**YouTube** – Learn AI, Build Smart Tools, and Explore Agents!](https://youtube.com/shorts/FG4l33LbcO4?si=APZzc27XjO9pXsn5)  
 - 📸 [**Instagram** – Quick AI Tips, Demos, and Project Journeys](https://www.instagram.com/reel/DKlalhbNQpd/?utm_source=ig_web_copy_link&igsh=aDN6YXdlaXRvM2Nm)

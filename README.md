@@ -7,7 +7,8 @@
 - 🎓 Pursuing **B.Tech in Computer Science Engineering** at **IILM University**  
 - 🤖 Exploring the fascinating world of **Artificial Intelligence**  
 - 🛠️ Currently building **AI-powered projects** and creating **autonomous AI agents**  
-- 🧠 Deeply involved in **AI literacy** and helping others understand the true power of AI 
+- 🧠 Deeply involved in **AI literacy** and helping others understand the true power of AI
+- DEVELOPING DEEP KNOWLEDGE IN PROGRAMMING FROM BASIC TO ADVANCE LEVEL IN NEXT FEW MOTHS 
 
 ---
 
